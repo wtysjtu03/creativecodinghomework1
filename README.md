@@ -1,2 +1,0 @@
-# creativecodinghomework2
-creativecodinghomework2
